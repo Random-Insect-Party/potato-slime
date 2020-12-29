@@ -1,1 +1,1 @@
-# furry-potato
+# potato-slime
